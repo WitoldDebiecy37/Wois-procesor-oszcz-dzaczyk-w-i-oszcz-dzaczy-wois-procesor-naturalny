@@ -1,0 +1,1 @@
+# Wois-procesor-oszcz-dzaczyk-w-i-oszcz-dzaczy-wois-procesor-naturalny
